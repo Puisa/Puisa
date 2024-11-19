@@ -2,4 +2,4 @@
 - 👀 I’m interested in neuroinformatics and accessible web design.
 - 🌱 I’m currently learning neuropsychology and C++.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I've never eaten an egg.
+- ⚡ Fun fact: I've never eaten an egg and my favourite marvel character is Deadpool.
